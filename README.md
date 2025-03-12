@@ -1,0 +1,4 @@
+# praktikum-adp
+
+NAMA : AYSI FITRIA RAMADHANI
+NIM : 2410431013
